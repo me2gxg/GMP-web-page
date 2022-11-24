@@ -1,1 +1,1 @@
-# GMP-web-page
+# George Mitu Photography
